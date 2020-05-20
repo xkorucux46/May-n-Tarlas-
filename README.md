@@ -1,2 +1,3 @@
 Mayin Tarlasi Mustafa Korucu...
+Projemin Videosunu çektim izleyebilirsiniz.
 
