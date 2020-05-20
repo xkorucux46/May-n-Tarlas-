@@ -1,2 +1,2 @@
-# May-n-Tarlas-
-MUSTAFA KORUCU MAYIN TARLASI
+Mayin Tarlasi Mustafa Korucu...
+
